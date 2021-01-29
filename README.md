@@ -8,6 +8,6 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with ...Everything
 - 💬 Ask me about ...Anything
 - 📫 How to reach me: ...https://www.linkedin.com/in/tarun-deshmukh-16b6601b8/
-- 😄 Pronouns: ...he/his/him
+- 😄 Pronouns: ...he/him
 - ⚡ Fun fact: ...Noob
 -->
